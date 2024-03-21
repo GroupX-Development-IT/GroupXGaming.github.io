@@ -1,1 +1,1 @@
-# GroupXGaming.github.io
+ groupxgaming.github.io
